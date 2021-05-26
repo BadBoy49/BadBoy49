@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BadBoy49
+- 👀 I’m interested in Graphics Design 
+- 🌱 I’m currently learning HTML5
+- 📫 How to reach me? Just Email me at hamedullah49@gmail.com
